@@ -1,4 +1,8 @@
 # poo_nolasco_aguilar_martha_ofia_0948_3w
+EJERCICIO 1 
+![image](https://github.com/user-attachments/assets/7c0f6047-379c-4f92-a7df-080367d038d8)
+![image](https://github.com/user-attachments/assets/a8505776-e48d-4c6e-b49e-d26648086d18)
+
 EJERCICIO 3 
 ![image](https://github.com/user-attachments/assets/fa552027-0d05-4fb0-bcf5-0e8ca2d8086b)
 ![image](https://github.com/user-attachments/assets/50a80d13-0ee8-446b-9747-7fe6ea10a9f6)
