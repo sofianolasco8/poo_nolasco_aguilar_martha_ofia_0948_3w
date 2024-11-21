@@ -2,10 +2,16 @@
 EJERCICIO 1 
 ![image](https://github.com/user-attachments/assets/7c0f6047-379c-4f92-a7df-080367d038d8)
 ![image](https://github.com/user-attachments/assets/a8505776-e48d-4c6e-b49e-d26648086d18)
+EJERCICIO 2 
+![image](https://github.com/user-attachments/assets/bf90bbea-cb90-4546-8e66-25295e2573e2)
+![image](https://github.com/user-attachments/assets/fedee34e-2e83-42bd-b962-7bbd648d7717)
 
 EJERCICIO 3 
 ![image](https://github.com/user-attachments/assets/fa552027-0d05-4fb0-bcf5-0e8ca2d8086b)
 ![image](https://github.com/user-attachments/assets/50a80d13-0ee8-446b-9747-7fe6ea10a9f6)
+EJERCICIO 4 
+![image](https://github.com/user-attachments/assets/36e238d8-7235-4fdb-8a6a-158dc92c00bd)
+![image](https://github.com/user-attachments/assets/e30305ec-530e-481c-be8b-bc1928a15114)
 
 EJERCICIO 5 
 ![image](https://github.com/user-attachments/assets/008abb5d-7608-45ca-9430-3adcbc426b12)
